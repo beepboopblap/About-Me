@@ -23,7 +23,7 @@ Here are the 6 classes I take for IBDP (not including core subjects):
 
 
 
-
+###### Contact Me
 
 
 
