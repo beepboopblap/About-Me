@@ -30,6 +30,16 @@ Through my early years at Sha Tin College, I wasn't as devoted into studying and
 
 In order to achieve excellence outside of my classes, I've joined a number of online MOOCs (massive open online course) on websites such as Coursera and Edx. I'm currently undergoing a 10 week course on an introductory to physiology provided by Duke University, which so far has been very insightful and interesting to human biology lovers like me. I also aim to provide service for society at a local scale, so I signed up to volunteer at a number of Hong Kong NGO's such as the CrossRoads Foundation and Food Angel.
 
+**Some more examples of EC's I'm doing**
+
+- Youth Mental Health First Aid Course - Mental Health Association HK
+- Wharton Investment Competition - Wharton Global Youth Programme
+- Post Mortem / Health care - Premed Projects UK
+
+<br>
+
+### Athletics 
+
 <br>
 <br>
 <br>
