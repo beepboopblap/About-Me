@@ -24,20 +24,12 @@ Here are the 6 classes I take for IBDP (not including core subjects):
 - Standard Level Application and Interpretation Mathematics
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
 
 
 ##### Contact Me
