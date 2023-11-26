@@ -20,3 +20,13 @@ Here are the 6 classes I take for IBDP (not including core subjects):
 - Standard Level B Chinese
 - Standard Level Application and Interpretation Math's
 
+
+
+
+
+
+
+![image](https://github.com/beepboopblap/About-Me/assets/89974500/fe0f4055-a22b-4e27-9823-f1a493b3fb39)[1]
+
+
+[1]: https://www.linkedin.com/in/shen-le-xuan/
