@@ -15,7 +15,7 @@ I'm extremely passionate in the industry relating to the study of physiology and
 
 Through my early years at Sha Tin College, I wasn't as devoted into studying and making the best of my education. I started off with failing grades on nearly all of my subjects. However, it was until year 10 where I started to become academically disciplined and created an scholastic comeback. For my IGCSE/GCSEs, I had earned an equivalent to 7 As, which demonstrates the motivation I have for my education.
 
-Here are the 6 classes I take for IBDP (not including core subjects):
+**Here are the 6 classes I take for IBDP (not including core subjects):**
 
 - Higher Level History
 - Higher Level Biology
