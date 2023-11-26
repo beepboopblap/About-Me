@@ -6,6 +6,7 @@
 
 I'm extremely passionate in the industry relating to the study of physiology and the idea of biology in connection with sports. I'm diligent, motivated, and a team player. I'm currently a IB Diploma student based in Hong Kong, and aim to pursue higher education in the US.
 
+<br>
 
 ### Education
 
@@ -23,6 +24,11 @@ Here are the 6 classes I take for IBDP (not including core subjects):
 - Standard Level B Chinese
 - Standard Level Application and Interpretation Mathematics
 
+<br>
+
+### Extra Curriculars
+
+In order to achieve excellence outside of my classes, I've joined a number of online MOOCs (massive open online course) on websites such as Coursera and Edx. I'm currently undergoing a 10 week course on an introductory to physiology provided by Duke University, which so far has been very insightful and interesting to human biology lovers like me. I also aim to provide service for society at a local scale, so I signed up to volunteer at a number of Hong Kong NGO's such as the CrossRoads Foundation and Food Angel.
 
 <br>
 <br>
