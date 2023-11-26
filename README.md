@@ -1,6 +1,6 @@
 # Hi, I'm Nicholas.
 
-![[Pasted image 20231126102139.png]]
+![1698341458340](https://github.com/beepboopblap/About-Me/assets/89974500/3908197b-65d2-4ade-9c0f-c003df4fa010)
 
 I'm extremely passionate in the industry relating to the study of physiology and the idea of biology in connection with sports. I'm diligent, motivated, and a team player. I'm currently a IB Diploma student based in Hong Kong, and aim to pursue higher education in the US.
 
