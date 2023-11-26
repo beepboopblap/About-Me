@@ -26,8 +26,8 @@ Here are the 6 classes I take for IBDP (not including core subjects):
 
 
 
-[![image](https://github.com/beepboopblap/About-Me/assets/89974500/fe0f4055-a22b-4e27-9823-f1a493b3fb39)][1]
+[![3536505](https://github.com/beepboopblap/About-Me/assets/89974500/82f45a07-1742-4519-83dd-6d46d366c4f8)][1]
 
 
 [1]: https://www.linkedin.com/in/shen-le-xuan/
-<img src="[![image](https://github.com/beepboopblap/About-Me/assets/89974500/fe0f4055-a22b-4e27-9823-f1a493b3fb39)]" width="50%" height="50%"/>
+
